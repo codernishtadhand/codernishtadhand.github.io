@@ -16,3 +16,6 @@
 | 18-07-2024 | Prof. Rishi Kapoor | Sir taught the topic - Understanding the human beings As a  Co-existence of Self and Body.|
 | 18-07-2024 | Dr. Harwinder Singh | Dr. sir told us about NCC and air wing and what are its benefits of joining and motivated us with his motivational words.|
 | 18-07-2024 | Er. Jaswir Singh Grewal | Grewal Sir told Us about NSS Society and motivated us to do social works and help people around us. |
+| 19-07-2024 | Er. Kanwardeep Kalra | Er. Kalra taught us about how to represent ourself at the time of interviews and to be formal and what are soft skills which will help us to represnet ourself in a better and polished way. |
+| 19-07-2024 | Dr. Jaswinder Singh | Sir showed us many experiments related to maths and science which helped us to understand the concepts in a better way. |
+| 19-07-2024 | Prof. Sania Mehra | Prof. Mehra taught us the correct way of introducing ourself formally and helped us know ourself in a better way. |

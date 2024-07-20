@@ -1,4 +1,4 @@
-# Activity Report of Student Infuction Program 2024
+# Activity Report of Student Induction Program 2024
 
  | Date | Resource Person | Description|
 | ----------- | ----------- |----------|

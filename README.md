@@ -19,3 +19,5 @@
 | 19-07-2024 | Er. Kanwardeep Kalra | Er. Kalra taught us about how to represent ourself at the time of interviews and to be formal and what are soft skills which will help us to represnet ourself in a better and polished way. |
 | 19-07-2024 | Dr. Jaswinder Singh | Sir showed us many experiments related to maths and science which helped us to understand the concepts in a better way. |
 | 19-07-2024 | Prof. Sania Mehra | Prof. Mehra taught us the correct way of introducing ourself formally and helped us know ourself in a better way. |
+| 22-07-2024 | Dr. S.B.Singh | Sir helped us to know our strengths, weaknesses, goals and dreams and how we can achieve them. |
+| 22-07-2024 | Dr. Pushpinder Singh | Dr. Sir told us about his life experiences and also we got to know different ways in which people learn the things and sir told us different stories which will help us in future to be successful in our life. |

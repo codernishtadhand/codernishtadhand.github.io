@@ -26,3 +26,5 @@
 | 24-07-2024| Mr. Gauravdeep Singh| Mr. Gaurav told us his life story about his struggles and failure and how he overcome all these suitations in his life and became a successful person. He also motivated us to believe in God and never try to run off the the difficult times either we should face these and come out of the suitation with victory. |
 | 24-07-2024 | Er. Lakhveer Singh |Sir told us about what is CMT and NPTEL and how we can get minors or honours degree. |
 | 24-07-2024 | Causmic Club | In this we enjoyed various performances of our seniors and got to know various opportunities in this club and how we can join it and its benefits. |
+| 25-07-2024 | Mathematics | Solved different questions on Integration. |
+| 25-07-2024 | Mathematics | Solved different questions on Derivatives. |

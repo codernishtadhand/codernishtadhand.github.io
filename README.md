@@ -29,4 +29,4 @@
 | 25-07-2024 | Mathematics | Solved different questions on Integration. |
 | 25-07-2024 | Mathematics | Solved different questions on Derivatives. |
 | 26-07-2024 | Dr. Kanwalpreet K Bhatt | Mam told us about the benefits of meditation, How to do meditation and what are the life changing experiences. |
-
+| 26-07-2024 | Valedictory | Closing ceremony of the induction programm. |

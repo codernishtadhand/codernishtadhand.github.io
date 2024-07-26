@@ -28,3 +28,5 @@
 | 24-07-2024 | Causmic Club | In this we enjoyed various performances of our seniors and got to know various opportunities in this club and how we can join it and its benefits. |
 | 25-07-2024 | Mathematics | Solved different questions on Integration. |
 | 25-07-2024 | Mathematics | Solved different questions on Derivatives. |
+| 26-07-2024 | Dr. Kanwalpreet K Bhatt | Mam told us about the benefits of meditation, How to do meditation and what are the life changing experiences. |
+
